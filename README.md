@@ -1,4 +1,4 @@
 # Community Classroom is OP
 
 - Kunal Kushwaha says that this community is amazing.
-- Prajwal finds this superb!!
+- Prajwal finds this superb!
